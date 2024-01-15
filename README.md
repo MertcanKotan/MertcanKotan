@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MertcanKotan
+- 👀 I’m interested in new talents.
+- 💞️ I’m looking to collaborate on give opportunity for senior talents.
+- 📫 How to reach me https://www.linkedin.com/in/mertcan-kotan-69274118a/
+- 😄 Pronouns: Mertcan
